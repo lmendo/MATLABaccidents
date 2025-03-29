@@ -111,7 +111,7 @@ USA looked different in my school maps.
 
 **Medium:** Too many things on png
 
-One cornu was good, by why not just put more?
+One Cornu was good, but why not just put more?
 
 # yarn
 
